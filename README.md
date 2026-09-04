@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @khoerulimam
 - 👀 I’m interested in telecommunication internet
 - 🌱 I’m currently learning how can all be connected even though they are different
-- 💞️ I’m looking to collaborate on with Allah, because God really understands me
 - 📫 How to reach me DM Instagram @kimmmaamm
 
 <!---
